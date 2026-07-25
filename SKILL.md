@@ -1,1 +1,411 @@
-ΩέΩέιξµιήΉέ­΄ο~ύο~ψλλ^ψλή·ΩήΈλ¶ο»λΎ½ιξ»Ρ®Έλχλ~φλήτο½ιώέ­΄ΫmψΩήτλΞµο~ΉΫNφιώο΄λ~µοχλ΄λΉλnωλΎ»λήλ½ΪΫNωιξΈλφο~ψλ^λ΄λnωλΎχΫN¶λΊιώφλ΄λ®½οΞ½ιξ»Ων¶Ρ®ϊλφο~½ιώέ­΄ί]ί]ίMλ^ωοΌιώφέ­΄γ~ιήολήψοέιΞ½λ~ΉιξχλΪΫNγήxΡ®τιΞµοΊιώφιήχέ­΄εΎλήοόΩΝ΄ιήµλ~ο}ΫNϋλήλοΎχεέιήΉοµλµοµέ­ΫM΄λΞΉοnλχέ­ΫM΄ΫM΄οµλΎχέ­΄εΎΈλ¶ο»λΎ½ιξ»ΩΝ΄οφιώωλnλχλΞιώψλήλ½ΫNτοnλnλΩήχιώο®½ιξ»ΩΝ΄οnιώψΩή·λ^ωο~ΉΩΝ΄λήο®Ήο~ψλή»λ^ψλήιξ]Ρ­΄ΫM΄ΫNφλλ^ψλΈεώχιΎ½ιΞο}ΪΫN[οΉο~ψΩήΈοn½ο®ΉινλΉο®ΉιΞοNλοΫNτιΞµινΫNχο¶λ^»λολφλήϊλΩήΈλϊλιώτιήΉιξψεέΩέΩέΡ­·ΫNwοήχοΉιήµο½λ}΄γΉλnωλΎ»λήλ½Ρ­·Ϋ}΄αώϊλφο®½λϋΡ­ηnµιξΈιώΫNΊλήόλχΫNϋλ^χοΉΫNψλήλ΄λ^λ΄λ~φλµοΉΫNλϋΫN¶ο»ο}ΫNuο½λ~›ΫNτλ^ψλ~ΌλχΫNλ^χι½΄ολΉοnοή½ιξ»ΫN½ο~χοΉο}Ρ­Ω­γ~οnΉΫNτοn½ιξ·λήτιΞΉέ­Ω­΄γ^ηΎ5ηήwΫNΊλήλ΄οnιώψΫN·λ^ωο~ΉΫN¶λΊιώφλ΄λ^ψοΉιήτο½ιξ»ΫNΊλήόλχΩν΄η~ύιήτοιέ΄λ®½οΞΉο}΄λ^φλ΄λ®µλήοφλΡ­Ω­η®½ιώλ^ψλήλ½΄οΌλ΄ιΞΉοψλφΫNλ­΄οΌλήχΫNτοnλ~Ήο~χΫN½ο}΄ο®½ιώλ^ψλήλ½΄οΌλ΄ο~τλήφλήψΫNλ­΄λΉλnωλΎ»λήλ½Ω­Ρ­Ϋ}·ΫNxλΞΉΫN=οnιν΄αΞµο½Ρ®΄λN΄Ρ®αύ΄γ®=ηΞ9η}΄ηΎ=η<αώyη΄ηnαώxΫN7γ^yη~9ΫN=αξzγwη=γΎ5η=αώΫN:γήvη~xΡ®΄λN΄Ρ­γήΊΫNύιώωΫNΌλ^ϊλΫΎψΫN·ιώοNλψλΈΫNtλΞµο~ΉΫMυΩΝ΄οήο΄λ~µιξιώψΫNτοnοNο~ΉΫNΊλήόλχΩνΡ­·Ϋ}΄ηΌλ΄γ®ΉλΈλnµλ~›ΫNιώοM΄ηnωιΞΉΡ­ηΌλ΄λ®ΉλΈλnµλ~›ΫNιώοM΄λήχΫNψλΞΉΫNΈλ¶ο»λΎ½ιξ»ΫNϋιώφι½ΫN6λΊιώφλ΄οnΉλ^Έλήλ½΄λ~λΉΫNψιύ΄λnωλήλ΄λ]΄οΌλοnύΩΝ΄λ~φλµοΉΫNοm΄λήΈλο½λ®ύΫNµΫMΩ®ψλή»λΞψΩ­ΫN·ιώιήµιξΈΫNψλΞµο΄λ~µιν΄λΎΫNφλΈΫNιν΄οΌλ΄οχλφΫΎχΫNΉοΞµλ~ψΫNχοήοNψιώΫNµιξΈΫN»οnΉλΫNϋλΞΉιν΄οΌλ΄λnωλ½΄λήχΫNΊλήόλΈΩν΄γ]΄ο½λΎΌο΄ιΞιώτΫN½ο}΄λ®µο~ψΩΝ΄λΉοΉοnλήλήχο½λ}ΫNµλΎΉιξψΩήφοιξµλnλΫNµιξΈΫNχοNΉλ~½λ®½λ}΄λιώωλΎΌΫNψιύ΄λ~µο·λΝ΄οΌλήχΫN¶ο»ΫG¶σOxΫNιώψΫNλφλοέ΄ΫnΈιώΉο~ΫΎψΫN·οnµο~ΌΫmΡ­ηΎΌλΫNµΫN·ιΞΉλ^ΫNφλτοnΫN½ο}΄λΞµοnΈΩΝ΄ο~τλλ΄λ½ο~τοnοNοnψλήιξµοΉΫNΉλ®Ίιώφο΄λnωλήλ½ιξ»ΫNψλΞΉΫNιώοMΫN;οΉο~χλήλ½΄οΎ½οΌιώωο΄λ]΄οnΉλλ~µοNµλnλ΄ιΞιώτΫN½ο}΄οΌλ΄λ®µλήοφλ΄ιήλΉΫNψλΞ½ο}΄ο~›λήιΝ΄λόλήχοχΫNψιύ΄οNφλϊλοΡ­Ϋ}·ΫN{λΞΉιν΄οΫNyο~ΉΡ­ηχλ΄λ®οm΄γ^ηέ΄οΉλ~Όιξ½λ~µιΝ΄λήχο~ωλΪΡ­ΫNxλχο΄λ®µλήοφλχΡ­ΫN6ο»ο}΄λήΫNτοnλωλ~ψλήινΩέ΄ηλόοNΉλ~ψλΈΫN¶λΌλ^ϊλήοmΩέ΄ηNΉοnΊιώφιήµιξ·λ΄οNφιώ¶ιΞΉιήχΡ­ΫN6ο½ιΞΈΫNΊλ^½ιΞωοnΉο}Ωέ΄γήοΉλΎφλ^ψλήιν΄λήχο~ωλχΡ­Ω­ηχλ΄οΌλήχΫN9η~tγ7γή5αΞηέ΄οΎΌλέ­Ω­Ωέ΄ηλΉοm΄ο½ιήΉΫNτοnΉο~χοφλ΄ΫΞΉιήΉοn»λλ~½λχΫNλ^›λ΄λΎωλχο~½ιξ»ΫNψλοNψλήλ½½Ρ­ΫM¶α®ωο~ψΫNιξΉΫNυο½λ~›ΫNΊλήόΫm΄ο~Ήλο}΄ιώ¶ο®½ιώωο}Ωέ΄ηήο»ο®ΉΫNµιΞφλµλύΫNψοn½λΈΫNοο½οNλ΄λ®½οΞΉο}Ωέ΄ηNφλϊλήοχΫNΊλήόΫNΈλήΈιν»ο΄οΎοn›Ρ­ΫN}ιώωΫNΈιώΫΎψΫNΊοιΞύΫNωιξΈλφο~ψλ^λ΄οΌλ΄λήχο~ωλΡ­Ω®8ιώΫΎψΫNχιΎ½οM΄οΎΌλέ­Ω­Ωέ΄γήχο~ωλ΄ο~Ήλο}΄ο~½ιήτιΞΉΫMΌο~½ιήτιΞΉΫN¶ο»ο}΄λΞµο®ΉΫNφιώο΄λ~µοχλχΫNψιώΫέΩέ΄ηήο»οnΉΫN½ιν΄λ]΄λΞωοnφοέ΄ΫΞφοχλΞ½ιξ»ΫN»οµοnµιξψλΉο}΄οnΉοΎοn›ΫέΩέ΄η~ιήΉιώλ΄οΎµιξψο}΄λήψΫNΊλήόλΈΫNαώ{ΫMΌο~ύο~ψλλ^ψλή·ΫN½ο}΄λ®µο~ψλφΫNψλΞµιν΄οΌοnµο~Όλήλ½½Ρ­Ϋ}·ΫNxλΞΉΫN:ιώωοm΄ηNΌλ^χλχΡ­ηήο΄αήyη~xΫN·ιώοNλψλ΄λµλ~ΌΫNτλΞµο~ΉΫN¶λΊιώφλ΄οNφιώ·λΉλ½ιξ»ΫNψιύ΄οΌλ΄ιξΉοΞψΩνΡ­ΩέΡ­Ϋ}·ΫNtλΞµο~ΉΫMυέ­΄ηnιώψΫN7λ^ωο~ΉΫN=ιξϊλχο½λΎµο½ιώΡ­Ω­γn9γ®ηn9ΫNµοψλοNψλήλ½΄γ^ηέ΄λ®½οΝΪΩ­Ρ­Ϋ}·Ϋ}΄ί]ΫNvλµλ΄γφοnοm΄αήΉο~χλ^»λχΫN7λ^φλΊοιΞύΡ­Ωέ΄γιν»ο΄ο~›λήτΫNτλ^χο΄λφοnοnχΫNοm΄οΎµοnλήλΎχΡ­ΫNxλΞΉοέ΄ιώΊοΉιν΄λ~ιξψλ^½ιν΄οΌλ΄λόλ^·ο΄ο~ιΞωο½ιώΡ­ΫNvλµλ΄ο~ψλ^·ι½΄οφλ^·λχΫN·ιώοNλψλοέΩέ΄αξοΉΫNλήλ΄ιξωιή¶λφο}ΫNΊλήλ΄οNµοΌο}ΫNΉοnφιώφΫN·ιώΈλχΡ­Ω­γ^·ο½ιώέ­Ω­΄ηχλ΄λNφλµλ_λ®½ιΞΉλM΄ιώΫNψλΞΉΫNφλλϊλ^ο΄ο~οφλ~ΉΫNΊλήλχΩν΄ηχλ΄λNχλµοn·λΞ_λ®½ιΞΉο~΄ΫNψιύ΄λ®½ιξΈΫNψλΞΉΫNΉοnφιώφΫNχοφλήλ½΄λήΫNψλΞΉΫN·ιώΈλ¶λ^χλΡ­Ϋ}·Ϋ}΄ίmΫN6ο½ιΞΈΫNµΫNxλή»λΞψΫN:λΉλ¶λ^·ι½΄αΞιώτΡ­Ωέ΄γ~µιν΄οήο΄οφλή»λΎΉοm΄οΌλ΄οχλφΫΎχΫNΉοΞµλ~ψΫNχοήοNψιώΫNϋλήψλΝ΄ιώλ΄λ~ιήλ^λίΡ­ΫN8ιώΉο}΄οΌλ΄λ~ιήλ^λ΄λ®µλήΫNΊιώφΫNψλΞ½ο}΄λnωλ½΄λ^λ΄ιώιΞύΫNτλ^χο}΄ιώλ~ΉΫNψλΞΉΫN¶ο»ΫN½ο}΄λ®½οΞΉλίΡ­ΫN=ο}΄λήψΫNΊλ^χο΄λιώωλΎΌΫNψιύ΄οnωιν΄οnΉοNΉλ^ψλΈιΞύέύΩέ΄γήχΫN½ο΄λΉοΉοnλήλήχο½λ}ίΫN:ιώφΫNΊιΞµιΎύΫN¶ο»ο}ΫN·λ^ΫNύιώωΫNφλ^½ο~ΉΫNψλΞΉΫNφλτοnλωλ~ψλήιν΄οnµοΉΫNΌλή»λΝ΄λιώωλΎΌΫNψιύ΄λΉλnωλ½ίΡ­ΫN=λ­΄ιξο΄οnΉοNφιώΈο·λή¶ιΞΉΫG¶σ―vΫN»λ^ψλΞΉοm΄ιήοnΉΫNΈλ^ψλ]ΫNΈιώΫΎψΫN»οΉο~χΩνΡ­Ω®{λ^ύο}΄οΫN·ιώο~ψοnωλ~ψΫNµΫNιώοM΄{o4χ΄οφοέ΄λήΫNφιώωλΎΌιΞύΫNψλΞ½ο}΄ιώφλΉοmΪΩ­Ρ­ί]ΫMΩ®:λ^½ιΞ½ιξ»ΫNψλχοΩ­΄λ^ψΫNψλΞΉΫNχλµιέ΄οΌλ^ψΫNφλµλ~ΌλχΫNψλΞΉΫN¶ο»έ­΄ολήψΩΝ΄λήοΉλΎφλ^ψλήινΫNοm΄λλοΩήΉιξΈΩνίmΫMΩ®<ηxηM΄ο~·οn½οNψΫMΫN·οφιΝΩ­΄λ^»λ^½ιξχο΄λ]΄οnωιξλήλ½΄λΉο­΄ο~ΉοnϊλφΩνί}ΫMΩ®7αΞ=ΫN½ιξϊιώ·λ^ψλήινΩ­΄οΎ½οΌΫNΊλήόοωοnΉΫN½ιξτοψΩΝ΄λ½λ®Ίλήλ½΄ο~ψλοψΩώχοΈλφοm΄λ^»λ^½ιξχο΄λόοNΉλ~ψλΈΫNοψοNωοΡ­ψΩν΄Ω­γΞΉλ^ΈιΞΉο~χΫN¶οnοΎχλφΫNχλ~φλήτοΩ­΄ΫΞtιΞµοήϋοn½λΎΌοηNωοNτλψλΉοm½ΫNµο~χλφο½ιξ»ΫNιν΄γαέΫN·ιώο~ιΞΉΩΝ΄ιώφΫNλψοΎοn›ΩνίΫMΩ®vλτιΞµοέ΄λ]΄λ~µοNψοφλΈΫNψοnµλ~ΉΩ­έ­΄γΞ5ηmΫNφλυοΉο~ψΫNτλ^ύιΞλ^ΈΩΝ΄λϊλο΄ιΞλ½ΫNυοΉοΉΫNλχο~µλΎΉΩΝ΄ιώφΫNϋλ¶λΞιώ›ΫN¶ιώΈοέΡ­ϊΩν΄Ω­ηΌοnοΎµοΎµοέ΄λΞµοnλχο}Ω­΄οΌλ^ψΫN¶ιώοχΫNψλΞΉΫNχιήµιΞλχο΄οχλΊοΫNχιΞ½λ~ΉΫNλ­΄οΌλ΄ο~ύο~ψλΫNµιξΈΫN·λ^ιΞχΫNψλΞΉΫNΊλ^½ιΞ½ιξ»ΫNτλ^ψλΝΡ­ϋΩν΄Ω­ηNφιώτλφούΫMΫNΊοΪν­΄ιΞιώτΩ­ΫNϋλΞΉιν΄οΌλ΄λnωλ½΄λήχΫN½ιξψλφιή½οψλο΄οΎφιώλ½΄ιώωοτοψΫNο®Ήοm΄λ]΄λnφιώµλ΄λήοNωο΄ο~τλ^·λΡ­όΩν΄Ω­γn½ο~Ήλ~ψλήιν΄λΞµοnλχο}Ω­΄ο~ωλήψλ^¶ιΞΉΫNΊιώφΫN΄λΎ½ο΄λn½ο~Ήλ~ψΫNφολM΄οΎΌλΫNψλΞΉΫN¶ο»ΫNµοNτλµοnΉλ΄λnΉοϋλΉιν΄οϋιύ΄ιΎιώϋιν΄ο~ψλ^ψλχΩνίέΫMΩ®8λήΊλ®ΉοnΉιξψλήµιΝ΄ιΞιώτΩ­ΫN·ιώοNµοn½ιξ»ΫNιΞΈΫNϊο}΄ιξΉο½΄ο®ΉοnχλήινΫNψοΎΫN·ιώλ®½λΎχΩΝ΄οϋιύ΄οNφιώϊλήΈλφο}ΫNοm΄οϋιύ΄λµοµο~ΉοχΩνί]τΩν΄Ω­γΞωιήµινλήΩήψλΞΉΩήιώοM΄ο~·οn½οNψΩ­ΫNιξοέ΄λ^χΫNµΫNλ^χο΄οnΉο~οnψέ­΄ο~·οn½οNψΫNψλΞΉΫNΌολ^ΫNχοΉοNχΫNµιξΈΫN·λ^τοωοnΉΫNψλΞΉλήφΫNφλχοο΄ο~ΫNψλΞΉΫNιώοM΄ο~ψλ^ύο}΄ο~ψοnωλ~ψοφλΈΩνΡ­Ω®xλή»λΞψλΫNψλΞΉΫNιώοM΄ιώλ~ΉΫN½ο΄λόλήχοχέ­Ω­Ρ­ΫNλ^›λ΄λήψΫNΊλ^χοΉοmΪΫN·λ^·λΞΉΫNχλψοτΩΝ΄ιξµοnφιώϋΫNχλ~οNΉΩΝ΄ο~›λήτΫNωιξφλλ^ψλΈΫN½ιξ½ο½λ^λήΪλ^ψλήινΡ­ΫNλ^›λ΄οΌλ΄ο~½λΎλ^ΫNχλΞµοnτλφέ­΄λ^χο~ΉοnψΫNψλΞΉΫNΉοΞµλ~ψΫNχοήοNψιώΩΝ΄ιξο΄λΎΉιξΉοn½λ}΄ο~ωλ~·λχο}Ρ­ΫNλ^›λ΄λήψΫNιώφλ΄λΉοΉοnλήλήχο½λ}ΪΫNτλήΫNψλήλΫNχλΉλ΄οnµιξΈιώιξΉο~χΩΝ΄λήχιώλ^ψλ΄λ®½ιΞΉο~ύο~ψλΩΝ΄λ®φλΉν®ΉΫNλψοΎοn›ΩνΡ®:ιώφΫNιώΩήΈλψλφιή½ιξ½ο~ψλή·ΫN¶ο»ο}ΫNψλΞΉΫN½ιήλΈλήµοΉΫN»ιώµιΝ΄λήχΫNµΫNΌλή»λΞΉοm΄οnΉοNφιώΈο·ο½ιώΫNφλ^ψλΫNιώψΫNτλφλ®Ήλ~ψλήινΫNvοΫNψλΞΉΫNψοn½λΎ»λφΫMυίMτοΝΫNτλ^φλ^ιΞΉιΞ½ν®ΉΩΝ΄λ^Έλ΄ο~ψοnΉο~χΩΝ΄ιξµοnφιώϋΫNψλήλήλ½΄οΎ½ιξΈιώϋο}ΫNοm΄λήι®Ήλ~ψΫNχιΞΉλτο}ΫN5ΫMωίMΉΫNΊιΞµιΎΉΫN½ο}΄λΉλnωλΎ»λ^¶ιΞΉέ½΄λ]΄ί]ΉΫNΊιΞµιΎΉΫNωο~ωλ^ιΞύΫN½ο}΄ιξοΡ­Ω­γ^·ο½ιώέ­Ω­΄ηχλ΄οΌλ΄λNψλφιή½ιξµιΞ΄ΫNψιώιΝ΄οΫNφοΫNψλΞΉΫNψλή»λΞψΫNιώοMΪΡ­λN΄λN¶λ^χλΝΫ}΄ηnωιν΄λ]΄ο~τλ·λήΊλή·ΫNΊλ^½ιΞ½ιξ»ΫNψλχοοNύοΉο~ψΫNψλχοχΩώψλχο_ιήλωιΞΉΩξτοέΪέ®ψλχο_ιξµιήΉΫMο­Ρ­·ΫNοm΄οnωιν΄λ]΄ο~·οn½οNψλΈΫNφλτοnΡ®τοήψλΞιν΄ο~·οn½οNψο}οnΉοNφιώ_λnωλ½οNύΡ­Ϋ}΄αώφΫNφοΫNµΫNΌλή»λΝοnΉοNΉο½ο½ιώΫNΊιΞµιΎύΫNφλτοnΡ®ΊιώφΫN½ΫN½ιν΄ν½υΩνί]τίNέέ½΄λΫNτοήψλχο΄οΉο~ψο}οΉο~ψεώΊιΞµιΎΉΩξτοέΪέ®ψλχο_ιξµιήΉΫMο]΄νΞάΫN¶οnΉλ^›έ½΄λιξΉΡ®΄λN΄Ρ­Ϋ}·Ϋ}΄ί}ΫN7λΞΉλ~›ΫNvλ·λο΄γ~Όλ^λΎΉο}Ρ­ΫN{λΞµο΄λ~Όλ^λΎΉλ΄οΌλ^ψΫN·ιώωιΞΈΫN·λ^ωο~ΉΫNψλΞ½ο}ίΡ­ΫN;λήψΫNΈλήΊλ­ΫNφλ·λο΄λ~ιήλήψο}Ωέ΄αξΉο½΄λΉοNΉιξΈλλ~½λχΩΝ΄λ~ιξΊλή»ΫN·λΞµιξ»λχΡ­Ω­γ^·ο½ιώέ­Ω­Ρ®΄λN΄λnµο~ΌΡ­·ΫNvλ·λο΄λ~ιήλήψο}λΎ½ο΄ιΞλ½΄Ωέιώλλήλ΄ΩέυίMΡ­·ΫNyιξ·ιώιή½οψλΈΫN·λΞµιξ»λχΡ®»λήψΫNΈλήΊλ­Ρ­·ΫN7λΞµιξ»λχΫN½ιν΄ο~τλ·λήΊλή·ΫNΊλήλλΎ½ο΄ιΞλ½΄ΩήτΫMΩήΊιώιΞο½΄ο~φλ}οNφιώ¶ιΞΉιήµο½λ~_λ®½ιΞΉΩξτοέ΄νΝ΄λΞΉλ^ΈΫMί]τίMλN΄λMΡ­·Ϋ}·ΫMψΩν΄γΎµοΌλφΫN9ο®½λΉιξ·λ΄λήΫNοο½Ωή7ιώοNιξΉιξψΫNwοήχοΉιήχΡ­Ω­ηΎ<γΫNχοήχοΉιέ΄λΞµο}΄ιήωιΞψλήτιΞΉΫN·ιώοNιξΉιξψο}΄ΫΞ5ηN=ΫG¶σ―vΫNχλφο®½λ~ΉΫG¶σ―vΫNΈλ^ψλ^¶λ^χλΫN7γέ΄{o:χm΄λnωλήλ΄{o:χm΄λΉοNιώύΫέΪΩ­Ρ­Ω­γn9γ®ηn9ΫNτοnοNο~½ιξ»ΫNΊλήόλχΩΝ΄λ^Έλ΄λ½λ^»ιξο~ψλή·ΫN½ιξχοφολοµο½ιώέ­Ω­Ρ®:ιώφΫN9γ^7γΝ΄λ~ιήτιώλο΄λnολµοnύέ­Ωέ΄αΞλ½΄οΎΌλ^ψΫNΈλ^ψλ]΄λοΉοnχΫNψλΞΉΫN·ιώοNιξΉιξψΡ­ΫNιώ»ΫNϋλΞµο΄λµοµΫNΉοΞ½οχΫNψλΞΉΫN·ιώοNιξΉιξψΡ­ΫNzλφλήΊοέ΄λο®½οnιξλολ~ιξΊλή»ΫNτοnοNµλΎµο½ιώΡ­ΫN7λΞΉλ~›ΫNχοµοΉΫNµο΄λµλ~ΌΫNλ^ύλφΡ­ηnωιν΄ιώλ~ΉΫNψιύ΄λΎµοΌλφΫNΉο®½λΉιξ·λ΄ο~Όιώϋλήλ½΄ηΎ<γvγ΄λήψΫN¶οnΉλ^›ο}Ρ®xγΞ9αν΄λ^λ^οήΪλ΄λϊλήΈλλ~ΉΫNψιύ΄λήΈλο½λ®ύΫNψλΞΉΫNΊλ^½ιΞ½ιξ»ΫN·ιώοNιξΉιξψΩνη<γΫN½ιξϊλχο½λΎµοΉΫNψλΞµο΄ο~τλ·λήΊλή·ΫN·ιώοNιξΉιξψΩνΡ­·Ϋ}·ΫMωΩν΄ηφλ^·λ΄γµοµΫN:ιΞο½Ρ­Ω®{γΞ9αν΄λφοnοm΄λήχΫNΈλΉοM΄λήΫNψλΞΉΫN·λ^ιΝ΄ο~ψλ^·ι½ΪΩ­Ρ­Ωέ΄ηΎΌλφλ΄λλχΫNψλΞΉΫN¶λ^ΈΫNϊλ^οΉΫNοn½λΎ½ιξµοΉέύΩέ΄ηΎΌλ^ψΫN·λ^ιΞΉλ΄οΌλήχΫNΊολ~ψλήιν΄οΎ½οΌΫNψλΞΉΫN¶λ^ΈΫNϊλ^οΉέύΩέ΄αΎΉλτΫNψοnµλ~½ιξ»ΫNωοNχοφλµιέ΄οο½ιΝ΄οήο΄λ®½ιξΈΫNψλΞΉΫNχιώωοn·λΩέ΄γ®½οΝ΄λ^ψΫNψλΞΉΫNχιώωοn·λΫNιώψΫNµο΄οΌλ΄ο~ύιήτοιέΡ­Ω®5λ~ψλήινΪΩ­ΫNyο~ΉΫN΄ο~Ήλ^φλ~ΌεώΊλήλχλM΄οΫNψοnµλ~ΉΫNφλΊλφλλ~Ήο}ΪΡ­λN΄λNτοήψλΞινΫ}΄γ®½ιξΈΫNϋλΞΉοnΉΫNψλΞΉΫNΊολ~ψλήιν΄λήχΫN·λ^ιΞΉλο~Ήλ^φλ~ΌεώΊλήλχΫΝ¶λ®ωιξ·ο½ιώεώλ^λΌΫmΫNτλ^ψλΝέΫnχοn·Ωύ¶ΩΝ΄λ®½ιΞΉεώ»ιΞλmέΫmΩξτοέ¶ΫέΡ­·ΫN:λήλ΄οΎΌλφλ΄οΌλ΄ο®µοn½λ^¶ιΞΉΫN½ο}΄ο~Ήοο~Ήλ^φλ~ΌεώΊλήλχΫΝ¶ο®µοn½λ^¶ιΞΉεώλ^λ\εΞχΩ­έΫmΫNτλ^ψλΝέΫnχοn·Ωύ¶ΩΝ΄λ®½ιΞΉεώ»ιΞλmέΫmΩξτοέ¶ΫέλN΄λMΡ­·Ϋ}·ΫNtλΞµο~ΉΫMυΫN7ιώοNλψλήιν΄γ~Όλ·ιΎλήχοΡ­ΫN[ΫN]ΫN9οnφιώφΫNλχο~µλΎΉο}΄λ®ωιΞοέ΄οnΉλ^ΈΫNµιξΈΫNωιξΈλφο~ψιώλΩέ΄ε½΄εέ΄γ]΄ο½λΎΌο΄ιΞιώτΫN·ιώιήµιξΈΫNΉοΞ½ο~ψο}΄λ^λ΄λΞµο}΄λnΉλΫNφοΫNµο΄ιΞΉλ^χο΄ιώλ~ΉΡ­ΫN[ΫN]ΫNιώοM΄λήχΫNφλΈΩή·λ^τλ^¶ιΞΉέ­΄λήψΫNµο~χλφοχΫNψλΞΉΫNωο~Ήοm»ο}΄λόλ^·ο΄ο~ύιήτοιέΫNιώψΫNµΫNλµοn¶οέ΄λ®µλήοφλΩέ΄ε½΄εέ΄αΞιώτΫN½ο}΄λΉοΉοnλήλήχο½λ}ΫNοm΄λ]΄λ®λ^›οέ΄λnωλ½΄λΞµο}΄λ]΄λΞ½λΎΌΫNΉιξο»λΝ΄οnΉοNφιώΈο·ο½ιώΫNφλ^ψλ΄οΫNΈλ¶ο»Ρ­ΫN[ΫN]ΫNvλ·λο΄λ~Όλ^λΎΉο}΄λήΈλο½λ®½λΈΫNµιξΈΫNφλϊλήΉοΎΉλΩέ΄ε½΄εέ΄γϊλήΈλλ~ΉΫN»λ^ψλΞΉοnΉλ΄ΫΞιώ»ο}ΫNχοµοΉΩΝ΄λµοµΫNΊιΞο½½Ρ­ΫN[ΫN]ΫNtοnλnλΫN½ο~ιΞµοΉλ΄οΫNχοNΉλ~½λ®½λ}΄λ~ιήτιώλολ~λΉΡ­ΫN[ΫN]ΫNvιώο΄λ~µοχλ΄λΞύοNοΌλχλχΫN·λ^ΫN¶λ΄ο~ψλ^ψλΈΫNµιξΈΫNψλχοΉλΡ­Ω®wηηMΪΩ­ΫN8ιύ΄ιξο΄οNφιώ·λΉλ΄οΫNtλΞµο~ΉΫMφΫNωιξψλήΫNύιώωΫNωιξΈλφο~ψλ^λ΄ηΎ<ηέ΄λήψΫΎχΫNΌλ^τοNΉιξ½ιξ»ΩνΡ­ΩέΡ­Ϋ}·ΫNtλΞµο~ΉΫMφέ­΄ηNµοψλφιν΄γ^λ^οήχλήχΡ­Ω­γ®½ιξΈΫNψλΞΉΫNτλ^ψοΉοnΫN¶λΊιώφλ΄λ®½οΞ½ιξ»έ­Ω­Ρ­·Ϋ}·ΫMτΩν΄αή½ιξ½ιή½ν®ΉΫNψλΞΉΫNvλτοnλωλ~ψλήινΡ®ιξ·λ΄οΌλ΄ιΞιώτΫN½ο}΄οnΉλΫNχλΞφλήι½΄οΌλ΄οnΉοNφιύ΄οΫNψλΞΉΫNχιήµιΞλχο΄ο~·λλ^φλήΫNψλΞµο΄ο~ψλήιΝ΄λΎλχΫNφλΈΩν΄γ~ωο΄λήοNωοχΩΝ΄λ~µιΞλφο}ΫN·ιώλ®½λ½ΫNΈλ^ψλ]ΫNµιξΈΫNχοΉοNχΫMΩ®ιξΉΫNµο΄λ]΄ο½ιήΉΩ­ΩΝ΄οnΉΩήφοιξ½ιξ»ΫNψλΞΉΫNιώοM΄λ^ΊοΉοm΄λµλ~ΌΫN·οψΩν΄αΎΉλτΫNιξοέ΄οΎΌλ^ψΫN½ο}΄ιΞλ^ΈΩή¶λµοn½ιξ»ΫNΊιώφΫNψλΞΉΫNΊλ^½ιΞωοnΉΩνΡ®8ιώλ΄οΎΌλΫNφλιώϊλήλ½΄λ^οέ΄οnΉιήµλήλήλ½΄λλλο΄ιήµιΎΉο}΄οΌλ΄ιΞιώτΫN»ιύ΄λΎφλΉινΫN5ΫNλήλήλ^ΫNφλτοnΫNλ^φοnοΎχΫNψλΞΉΫNΌοήτιώψλΞΉο~½ο}΄ο~τλ^·λ΄λ^λ΄ιώΊοΉιν΄λnΉλ~ιήΉο}΄οΌλ΄λ~λµιξΉο~ψΫNφλ»οnΉο~χλήιν΄οΉο~ψΩνΡ­·Ϋ}·ΫMυΩν΄γ®½ιξΈΫN{ιώφιΎ½ιξ»ΫN9οΞµιήτιΞΉο}Ρ­ΫNιώ·λ^ψλ΄ο~½ιή½ιΞµοm΄οΎοn›λήλ½΄λ~λΉΫN½ιν΄οΌλ΄ο~µιήΉΫN·ιώΈλ¶λ^χλΩέ΄ηΎΌλ^ψΫNϋιώφιΎχΫNψλΞµο»ο}΄ο~½ιή½ιΞµοm΄οΫNϋλΞµο»ο}΄λnφιώ›λέύΡ­Ω®5λ~ψλήινΪΩ­ΫNyο~ΉΫN΄ο~Ήλ^φλ~ΌεώΊλήλχλM΄οΫNΊλήλ΄λ~ιήτλ^φλ^¶ιΞΉΫNτλ^ψοΉοnο}ΪΡ­λN΄λNτοήψλΞινο~Ήλ^φλ~ΌεώΊλήλχΫΝ¶ο~½ιή½ιΞµοn_οNµοψλφιν¶ΩΝ΄οNµοΌέέ¶ο~φλ}ΫmΫNΊλήλ_λΎιώ¶έέ¶Ω­οNύΫm½Ρ®΄λN΄Ρ­Ϋ}·Ϋ}΄ίmΫN7ιώοNµοnΉΫN5λΎµλήο~ψΫNvλΊλφλλ~Ήο}Ρ­ΫN=λ­΄λήοNλλο½ιξ»ΫNµΫNτλ^ψοΉοnΩΝ΄οnΉλ^ΈΫNψλΞΉΫNφλΊλφλλ~ΉΫN½ιήτιΞΉιήΉιξψλ^ψλήιν΄γ~αήtαΞ9η9αΞ}Ρ­ΫN8ιώΫΎψΫNχιΎ½ιέ΄{o4χ΄οnΉλ^ΈΫNΉο®ΉοnύΫNλήλΩέ΄ηλΉοnχοµιξΈΫNψλΞΉΫNτλ^ψοΉοnΫNΊοιΞύΫN¶λΊιώφλ΄λ^τοNοή½ιξ»Ρ­Ϋ}·Ϋ}΄ί}ΫN=λΉιξψλήΊοέ΄γ½λ®Ίλφλλ~Ήο}Ρ­ΫN{λΞµο»ο}΄λ½λ®Ίλφλο΄λnΉοϋλΉιν΄οΎοn›λήλ½΄λ^λ΄λnφιώ›λέύΩέ΄αΞ½ο~ψΫNΉο®ΉοnύΫNΈλήΊλ®ΉοnΉιξ·λΫNΌιώϋλϊλφΫNχιήµιΞΡ­ΫN8ιώΫΎψΫNµο~χολ΄ΫnψλΞµο΄λ~µιν»ο΄ιήµοψλφΫmΡ­·Ϋ}·ΫMψΩν΄ηλΉοnχοµιξΈΫN8λτλλΉιξ·λήΉο}Ρ­ΫN{λΞµο΄ιώψλΞΉοm΄λ~ιήτιώλοχΫNΈιώΉο}΄οΌλήχΫNλΉλίΡ­ΫN{λΞµο΄ο~ΉοψλήλΎχΩΝ΄λ~ιξΊλή»ΩΝ΄λο®½οnιξλοίΡ­ΫN{λΞµο΄λ^χο~ωιήτο½ιώο}΄λλχΫN½ο΄ιήµιΎΉέύΡ­ΩέΡ­Ϋ}·ΫNtλΞµο~ΉΫMχέ­΄γΞύοNοΌλχλήχΫNµιξΈΫNxλχο½ιξ»Ρ­Ω­η~·λήΉιξψλήΊλή·ΫNλψλΞλΪΩ­Ρ­Ϋ}·Ϋ}΄ί]ΫN:ιώφιέ΄ηnµιξ›λΈΫN:λ^ο~½λ®½λ^¶ιΞΉΫN<οήτιώψλΞΉο~Ήο}Ρ­ΫN;λλφλ^ψλ΄ίw¶σOwί΄οNλ^ωο~½λnλ΄λΞύοNοΌλχλχΫN¶λΊιώφλ΄οΉο~ψλήλ½΄λ^οέ΄ο~½ιξ»ιΞΉΫNιξΉΩνΩέ΄ηnµιξ›ΫNψλΞΉιέ΄λnύΫNλή›λλήΌιώλ΄λ^λ΄λ~ΌλµοNλχο}΄οΫNΊλ^ο~½λ®ύΩνΩέ΄η~ψλ^ψλ΄οΌλ΄οNφλΈλή·ο½ιώΫNΉλ^·λΝ΄λΞύοNοΌλχλήχΫNλ^›λχέ­΄Ϋn=λ­΄ηΝ΄λήχΫNψλΞΉΫN·λ^ωο~ΉΩΝ΄οΌλΫN·λΞµιξ»λήλ½΄ιώφΫNλnχλφο®½ιξ»ΫN}ΫNχλΞολ΄ιήµιΎΉΫNZΫNΌλ^τοNΉινΫmΩέ΄γ½ο~·λ^φλ΄ιώφΫNχλΞµοnτλΫNµιξύΫNΌοήτιώψλΞΉο~½ο}΄οΌλ^ψΫNΈιώΉο}΄ιξο΄ιήµιΎΉΫNµΫNψλχοµλnλ΄οNφλΈλή·ο½ιώΩνΡ®=λ­΄οΌλ΄οχλφΫN½ο}΄οNφλχλοΫNχλΞο½΄οΌλ΄οnµιξ›λΈΫNλήχο΄λnΉλ®οnΉΫNψλχο½ιξ»Ων΄ηΌλύΫNλ^ύΫNΌλ^ϊλ΄λιήµλήΫN›ιξοΎλΈλΎΉΫNψλΞµο΄λήο~ψλ^οοέ΄οnΉΩήφλ^ιΎχΫN½οΫN=λ­΄οΌλ΄οχλφΫN½ο}΄γ^:α½ΫNτοnλ~ΉλΈΫNϋλήψλΝ΄οήοφΫNφλ^ιΎ½ιξ»ΩνΡ­·Ϋ}·ΫMφΩν΄ηΉο~ψΫNλήλήλ^ιΞύΡ­Ωέ΄ηΉο~ψΫNψλΞΉΫNΌλή»λΞΉο~ψΩήφλ^ιΎΉλ΄λΞύοNοΌλχλήχΫNϋλήψλΝ΄οΌλ΄ο~λ^ιΞΉο~ψΫNτιώχο~½λnλ΄οNφιώ¶λΡ­ΫN7λΞµιξ»λ΄ιώλ΄ο®µοn½λ^¶ιΞΉΫNµο΄λ]΄ο½ιήΉΩνΩέ΄γιν»ο΄λ®½οΝ΄ιήωιΞψλήτιΞΉΫNψλΞ½ιξ»ο}΄λ^ψΫNιξ·λΡ­ΫNtοnΉλ®Ήοm΄λΉλnωλΎ»λφΩώvγtαΝ΄λήο~τλ·ο½ιώΫNϋλΞΉιν΄λ^ϊλ^½ιΞµλnλΫΫNιξΉΫN¶οnΉλ^›οNλήο΄λnΉλ^ψο}΄οΉιν΄ιΞλΎχΩνΩέ΄γήΊΫNύιώωΫNµλΈΫNιώ»ο}ΫNψλ^»ΫNΉο®ΉοnύΫNψλοNοnµοnύΫNλήλ΄οΎ½οΌΫNµΫNωιξ½ο^ωλ΄οNφλΊλήόΫNχο·λΝ΄λ^χΫN΄εΎ8γ6η;ΩήµίΊίn]λM΄ο~ΫN·ιΞΉλ^οτΫN½ο}΄λ]΄ο~½ιξ»ιΞΉΫNχλµοn·λΝΡ­Ϋ}·Ϋ}΄ί}ΫNzλφλήΊοέ΄γnΉλ®οnΉΫN7ιώο½ιξωλήλ½Ρ­ΫN8λήΈΫN½ο΄οΎοn›έύ΄{o:χm΄ηNΌλ^χλ΄ίΩέ΄γ½λΫΎψΫNϋιώφι½ίΫG¶σ―vΫN:ιώφιέ΄αξ9η½΄λΞύοNοΌλχλήχΡ­ΫN8αώΫΎxΫNµλΈΫNιώφλ΄λ®½οΞΉο}΄ιώΫNψιώτΡ­Ϋ}·Ϋ}΄ίΫN{λΞΉιν΄ηήο΄γιν»ο΄αΎιώϋΡ­Ωέ΄η~µοέ΄Ϋn=ΫNΈιώΫΎψΫNωιξΈλφο~ψλ^λ΄ηΝ¶Ρ­ΫN8ιώΫΎψΫNτοnΉοΉιξΈΫNψιύ΄ιΎιώϋΡ­ΫN5ο~›ΫNψλΞΉΫNωο~Ήοm΄λ®οm΄λΞΉιΞτΡ­ΫNvλχλµοn·λΝ΄ιήοnΉΡ­ΩέΩέΡ­·Ϋ}΄ηNΌλ^χλ΄ίΪΫN=ιήτιΞΉιήΉιξψλ^ψλήινΡ­Ω®:λήόΫNψλΞΉΫNφιώο΄λ~µοχλΫNιώψΫNψλΞΉΫNχοήοNψιώέ­Ω­Ρ­·Ϋ}·ΫMυΩν΄γ~φλµοΉΫN:λ^½ιΞ½ιξ»ΫNxλχο΄γ~µο~ΉΡ­Ωέ΄η~½ιήτιΞΉο~ψΫNτιώχο~½λnλ΄οnΉοNφιώΈο·ο½ιώΡ­ΫN5οψιώλ^ψλΈΫNψλχο΄λήΊΫNτιώχο~½λnλΩέ΄αήyη~xΫNΌλ^ϊλ΄λnΉλ®οnΉΫNΊλήόλήλ½Ωέ΄ηχλ΄οΌλ΄λNψλχολφλήϊλΩήΈλϊλιώτιήΉιξψλM΄ο~›λήιΝΡ­·Ϋ}·ΫMφΩν΄γήοNλλο΄η~½ιξ»ιΞΉΫN:λήόΡ­Ωέ΄γ^Έλφλχο}΄οΌλ΄οnιώψΫN·λ^ωο~ΉΫN½λΉιξψλήΊλήΉλΩέ΄αώγ΄λ~Όλ^λΎΉΫNµο΄λ]΄ο½ιήΉΡ­ΫNιύ΄ΫnϋλΞ½ιΞΉΫN=ΫΎΫNΌλφλ¶ΫN½ιήτοnο®ΉιήΉιξψο}Ωέ΄αξΫN¶ολλΈΫNφλΊλ^·οοn½ιξ»Ρ­Ϋ}·Ϋ}΄ί}ΫNzλφλήΊοέ΄γ®½οΝΡ®΄λN΄λnµο~ΌΡ­·ΫNvοΫNψλΞΉΫNχοNΉλ~½λ®½λ}΄οnΉλΎφλχο~½ιώΫNψλχοοNύοΉο~ψΫNψλχοχΩώψλχο_ιήλωιΞΉΩξτοέΪέ®ψλχο_οnΉλΎφλχο~½ιώΫMο­Ρ­·ΫNvοΫNΊοιΝ΄ο~ωλήψλ΄{o4χ΄ιξΫNφλ»οnΉο~χλήιξχΡ®τοήψλχο΄οΉο~ψο}ΫMο]λN΄λMΡ­·Ϋ}·ΫMψΩν΄γήΊΫN:λήόΫN8ιώΉο~ΫΎψΫN{ιώφι½΄{o4χ΄ηΌλ΄ηnωιΞΉΫNλ­΄ηΌοnΉλΡ­ΫMΩ®wηηMΩ­Ρ­ΫN7ιώωιξψέ­΄γΞο½΄ιήµιξύΫNΊλήόλχΫNΌλ^ϊλ΄οήο΄οφλήΉλίΡ­ΫN=λ­΄έΝ΄ί}ΪΫNvλψοφιν΄οΫNtλΞµο~ΉΫMυΩΝ΄οnΉΩήµιξµιΞύν®ΉΫNϋλήψλΝ΄ιξΉο½΄λήλ®οnλ^ψλήινΩέ΄Ω­γήΊΫG¶σΦΉΫMχέ­΄η~xαώtΫNµιξΈΫNυοΉο~ψλήιν΄οΌλ΄λ^φλ~Όλήψλ·οωοnΉΫMΌο~ψλτΫMωΫN¶λιώϋΫέΩ­Ωέ΄γαν»η΄λ^ψοΉιήτο΄γ®½οΝ΄Ϋ}ψΫNϋλήψλΞοψΫNµοn·λΞ½οΉλ~ψοφλ^ΫNΈλήχλ~ωο~χλήινΡ­·Ϋ}·ΫMωΩν΄γήΊΫMχΩ½΄γ®½οΞΉο}΄γ®µλήλΈέ­΄η^ωλχο½ιώΫN5οn·λΞ½οΉλ~ψοφλΡ­Ω®tλ^ψοΉοnΫN½ιξΈλή·λ^ψλήλ½΄λ^ΫNµοn·λΞ½οΉλ~ψοφλ^ΫNτοnλnλέ­Ω­Ωέ΄γµλ~ΌΫNΊλήόΫNφλϊλµιΞχΫNλϋΫNχλΞµοnΉλ΄ο~ψλ^ψλλ~οτιΞ½ιξ»ΫN½ιν΄λ]΄λ½λ®Ίλφλο΄οNλ^·λΩέ΄γ®½οΞΉο}΄οnΉο^ωλήφλ΄Ϋnλ^χο~½ο®ΉΫNφλΊλ^·οοn½ιξ»Ϋm΄οΫN½ιήτιΞΉιήΉιξψΡ­ΫN9λ^·λΝ΄λ®½οΝ΄λ~φλµοΉο}΄ιξΉο½΄ο~ύιήτοιήχΫNΉιΞχλϋλΞΉοnΉΡ­Ω­η~xαώtΫNµιξΈΫNυοΉο~ψλήιν΄λ®ωιξΈλ^λοµιΞχέ­Ω­Ωέ΄γήχΫNψλΞ½ο}΄οNµοψλφιν΄λ®ωιξΈλ^λοµιΞοέ΄ο~ολίΡ­ΫN5οnΉΫNϋλ΄Ϋnχο½λ~›λήλ½΄οΎ½οΌΫN½ο΄οΌοnο»λΝ΄ο~ΌλΉοm΄λήλφο½λ]¶έύΩέ΄η~ΌιώωιΞΈΫNϋλ΄οnΉλ®µλ~ψιώφΫNψλΞΉΫNµοn·λΞ½οΉλ~ψοφλ΄ο®χΩν΄λ~ιξψλήοΉΫNΊλήόλήλ½΄ο~ύιήτοιήχέύΡ­Ω®8λήχλ~ωο~χΫNϋλήψλΝ΄οΌλ΄οχλφΫN¶λΊιώφλ΄λ^ψοΉιήτο½ιξ»ΫNιώφλ΄λ®½οΞΉο}Ω­Ρ­ηΌλήχΫN½ο}΄αξη΄λ]΄λ®µλήλΈΫNΌοήτιώψλΞΉο~½ο}΄{o4χ΄οΌλήχΫN½ο}΄λ]΄οΎφιώλ½΄λ^φλ~Όλήψλ·οωοnΉΩνΡ­ΩέΡ­Ϋ}·ΫNvλΈΫN:ιΞµλΎχΫG¶σOxΫNwηηM΄λ^λ΄γ®ιΞιώϋΫNtοnλ~Ήο~χΡ­γήΊΫNύιώωΫN·λ^ψλ~ΌΫNύιώωοnχλλ­΄οΌλήιΎ½ιξ»έ­Ωέ΄Ϋnuο½λ~›ΫNΊλήόΫNΊιώφΫNιώϋΩΝ΄λήο®Ήο~ψλή»λ^ψλ΄ιΞµοΉοm¶Ρ­ΫM¶α®ωο~ψΫNψοnύΫN·λΞµιξ»λήλ½΄ηΝ΄λ^λ΄ο~Ήλ΄λήΊΫN½ο΄οΎοn›ο}¶Ρ­ΫM¶γ^Έλ΄ιήωιΞψλήτιΞΉΫN·λΞµιξ»λχΩΝ΄οnωιν΄οΉο~ψο}¶Ρ­ΫM¶η~›λήτΫNψλΞΉΫNψλχοΫN=ΫΎιΝ΄ιήµιξωλ^ιΞύΫNϊλφλήΊοέ¶Ρ­ΫM¶γήψΫΎχΫNτοnλnµλnοέ΄ηΝΫNλψΫNλ΄λ®½οΝ΄οΌλ^ψΫmΩέ΄Ϋn=ΫNΈιώΫΎψΫNΊοιΞύΫNωιξΈλφο~ψλ^λ΄λnωο΄οΌλήχΫNλή»λΞψΫNϋιώφι½¶Ρ­ΫM¶ηNµοψλφιν΄ο~µοήχΫN|ΫN¶οψΫN=ΫΎιΝ΄λ^Έλ^το΄λήψΫNΈλήΊλ®ΉοnΉιξψιΞύΫmΩέ΄Ϋn<λφλ΄λ^φλ΄οΌλ΄ιήµλήΫNτοnλnλο}ΪΫN[ιΞ½ο~ψο}΄λ®½οΞΉο}΄οΎ½οΌιώωο΄λήο®Ήο~ψλή»λ^ψλήιξ]ΫmΩέ΄ηNφιώτιώχλήλ½΄ο~ιΞωο½ιώο}΄λnΉλ®οnΉΫNψοnµλ~½ιξ»ΫNΈλ^ψλ]΄λ®ιώϋΡ­ΫMΩ­¶αώλ΄ιήοnΉΫNΊλήόΫNµοψλοNψΫm΄ΫΞϋλΞΉιν΄λ^οnΉλ^Έοέ΄οφλήΉλ΄ίm›ΫέΩ­Ωέ΄Ω­γµλ~ΌΫNΊλήόΫNφλϊλµιΞχΫNµΫNλϋΫNτοnλnλΫN½ιν΄λ]΄λ½λ®Ίλφλο΄οNλ^·λΩ­Ρ­Ω®5αΞΫNλ­΄οΌλχλ΄ιήΉλ^έ­΄η~xαώtΩν΄ηnΉοωοnΫNψιύ΄ηNΌλ^χλ΄ί]Ω­Ρ­Ω­γήΊΫMχΩ½΄λ®½οΞΉο}΄λ®µλήλΈέ­Ω­΄η^ωλχο½ιώΫNψλΞΉΫNµοn·λΞ½οΉλ~ψοφλ΄ΫΞtλΞµο~ΉΫMψΫNχοΉοM΄ί½ΩνΡ­·Ϋ}΄γ~ιήιώΫNvλ^ψλήιξµιΞ½ν®µο½ιώο}Ρ®άΫN9οΞ·οχλ΄νΝ΄ηnΉλ^λήψοέ΄νΝνΝΩέΩέΩέΩήάΩέΩέΩέΩέΩήάΡ®άΫM¶γήχο~ωλ΄λήχΫNχλήοNλΫNΈιώΫΎψΫNλΉλ΄οNφιώ·λχο}¶ΫNάΫNwλήοNλ΄λήχο~ωλχΫNΌλ^ϊλ΄οnιώψΫN·λ^ωο~Ήο}΄οιύΫNtοnλ~Ήο~χΫN½ο}΄λ®µο~ψΫNΊιώφΫNχλήοNλ΄λnωλΎχΩν΄νΝνΝ΄Ϋn9ιήΉοn»λλ~ύΩΝ΄ιξΫNψλήλ΄λ®οm΄οNφιώ·λχο}¶ΫNάΫNwοήχοΉιήµο½λ}΄λΉλnωλΎ»λήλ½΄λήχΫN:γ^wη9ηm΄οΌλ^ΫN»οΉο~χΩήµιξΈΩή·λΞΉλ~›ΫNψλΞφλ^χλΞ½ιξ»Ων΄νΝνΝ΄Ϋnοχο΄οφοέ΄οΌλήχΫNΊλήφο~ψΩΝ΄οΌλΫN½ιξϊλχο½λΎµοΉΫm΄νΝ΄γ®½οnχο΄λ®½οΝ΄ο~ΉοχΫNψλΞΉΫNτλ^ψοΉοnΩν΄γΫN½ο΄οn½λΎΌο΄λ®φιώΫNψλΞΉΫNχοµοnψΩν΄νΝνΝ΄Ϋn=ΫΎιΝ΄οΎφλήψλ΄οΉο~ψΫNµλ®ψλφΫN·ιώλ®½οnλήλ½΄λ®½οΝ΄οΎοn›ο}¶ΫNάΫNyιξψλχοΉλ΄λ®½οΞΉο}΄λιν»ο΄ο~ψλή·ι½ΫNxλχο΄λ®½οnχο΄οNφιώϊλχΫN½οΫNάΡ®άΫM¶αήωιΞψλήτιΞΉΫNΊλήόλχΫNµο΄ιώλ~ΉΫNχλ^ϊλχΫNψλήλ¶ΫNάΫN7λ^ΫΎψΫN½ο~ιΞµοΉΫNϋλΞµο΄οΎοn›λΈΩν΄γ~µοχλχΫNλϋΫN¶ο»ο}ΫNάΡ®άΫM¶ηnΉλ®ΉοnΉιξ·λ΄οιύ΄ιΞιξ»ΩΝ΄γέ»ιΞΫNµλµοNψΫNψλΞΉΫNτλ^ψοΉοnΫm΄νΝ΄ηNµοnψλήµιΝ΄ολΉοnχοµιξΈλήλ½΄λΎωλ^φλ^οΉλχΫN¶ο»ο}ΫNvλµλ΄λήψΫN·ιώοNλψλοέΫNάΡ®άΫM¶γέ΄ο~Ήλ΄οΌλ΄οNφιώ¶ιΞΉιέΫNλψΫNλ΄λ®½οΝ΄λήψΫm΄νΝ΄η~Ήλ½ιξ»ΫNχοήοNψιώο}΄{o=kM΄ολΉοnχοµιξΈλήλ½΄οnιώψΫN·λ^ωο~ΉΩν΄νΝνΝ΄ΫnιξΉΫNιώφλ΄λ®½οΝ΄λ^ψοΉιήτο¶ΫMΌλ^ΊοΉοm΄ίm›ΫNΊλ^½ιΞωοnΉο}½ΫNάΫMχΩ½΄λ®µλήοφλχΫMέΫNµοn·λΞ½οΉλ~ψοφλ^ΫNτοnλnλΩν΄η^ωλχο½ιώΫNψλΞΉΫNτλ^ψοΉοnΩΝ΄λιν»ο΄λ®½οΝ΄λ^»λ^½ινΫNάΡ­Ϋ}·ΫNuο½λ~›ΫNvλΊλφλλ~ΉΡ­νΝ΄ηNΌλ^χλ΄νΝ΄αΎΉοέ΄γ^·ο½ο®½ο½λχΫNάΫNwο·λ~Ήο~χΫN7οn½οΉοn½λ]΄νΝνΝΩέΩέΩένΝΩέΩέΩέΩέΩέΩέΩένΝΩέΩέΩέΩέΩέΩέΩέΩέΩήάΡ®άΫMΩ­υΩν΄ηnιώψΫN7λ^ωο~ΉΩ­ΫNάΫNvλµλ΄λφοnοnχΩΝ΄οnΉοNφιώΈο·λΫN·λΞΉλ~›ΫN·λΞµιξ»λχΩΝ΄λΎµοΌλφΫNΉο®½λΉιξ·λΫNψοnµλ~ΉΫNΈλ^ψλ]΄λ®ιώϋΫNάΫNyιξΈλφο~ψλ^λ΄ηΎ<γ^xΫNµιξΈΫN{γΞ}ΫNάΡ®άΫMΩ­φΩν΄ηNµοψλφινΩ­΄νΝ΄γ®½ιξΈΫNϋιώφιΎ½ιξ»ΫNΉοΞµιήτιΞΉο}ΫN·ιώοNµοnΉΩΝ΄λήΈλο½λ®ύΫNΈλήΊλ®ΉοnΉιξ·λχΫNάΫNιξο½΄οΎΌλ^ψΫΎχΫNΈλήΊλ®ΉοnΉιξψΫNάΡ®άΫMΩ­χΩν΄γΞύοNοΌλχλήχΩ­ΫNάΫN:ιώφιέ΄οΌλοnύΩΝ΄οΉο~ψΫNλήλήλ^ιΞύΩΝ΄ιώλ΄ο®µοn½λ^¶ιΞΉΫNµο΄λ]΄ο½ιήΉΫNάΫN7ιώλ®½οnλΈΫNοm΄ιξΉο½΄λΞύοNοΌλχλήχΫNάΡ®άΫMΩ­ψΩν΄γήοNλλοµο½ιώΩ­ΫNάΫN7οnΉλ^ψλ΄οnΉλΎφλχο~½ιώΫNψλχοΫNΊλήόΫNφιώο΄λ~µοχλΫNϊλφλήΊοέ΄νΝ΄γnωλ½΄οnΉο~ιΞϊλΈΩΝ΄λ^ιΝ΄οΉο~ψο}΄οNµο~χΫNάΡ­Ϋ}·ΫN<λφιήΉο}΄γ^»λο΄γήοΉλΎφλ^ψλήινΡ­·Ϋ}·ΫN=ιξϊλχο½λΎµο½ιώΫNxιώιΞχΡ­ηχλ΄οΌλχλ΄γΞΉοnλχΫNψιώιΞχΫNΈοφλήλ½΄ηNΌλ^χλ΄ί]ΪΡ­Ωέ΄Ω­λNχλµοn·λΞ_λ®½ιΞΉο~΄Ω­ΫG¶σOxΫN:λήλ΄λφοnοm΄ο~ψοn½ιξ»ο}ΫNψοnµλ~ΉΫNΊολ~ψλήιν΄λ~µιΞο}ΫNιώ·λ^ψλ΄οNµοψλφιξχΡ­ΫMΩ®΄οnΉλ^ΈεώΊλήλ΄Ω­ΫG¶σOxΫNvλµλ΄ο~οφλ~ΉΫN·ιώΈλ΄οΎ½οΌΫNλήλ΄ιξωιή¶λφο}΄λ®οm΄οNφλ·λήχλ΄λ^λ^οήχλήχΡ­ΫMΩ®΄οΉοnλήλ^λMΩ­΄{o4χ΄ηnωιν΄οΉο~ψο}ΫN·λΞΉλ~›ΫN»λήψΫNΌλήχοοnύΩΝ΄οnΉοNφιώΈο·λ΄λnωλΎχΡ­ΫMΩ®΄οΎΉλn_ο~Ήλ^φλ~ΌλMλNϋλ¶εώΉοΞψοnµλ~ψλMΩ­΄{o4χ΄ηnΉο~Ήλ^φλ~ΌΫNΉοnφιώφΫNλχο~µλΎΉο}ΫNλή¶οnµοnύΫNΈιώ·ο}Ρ­·Ϋ}·ΫN{λήψλΝ΄λΉιΞΉλΎµοΉεώψλ^χι½Ρ®:ιώφΫN·ιώοNλόΫNοο½Ωή·ιώοNιξΉιξψΫNΈλ¶ο»λΎ½ιξ»ΩΝ΄λ½ο~τλ^ψλ~ΌΫN½ιξϊλχο½λΎµο½ιώΫNχο¶λ^»λοχέ­Ρ®΄λN΄οNύοΌιώΡ®Έλλ»λ^ψλ_οµο~›ΫΝΫM΄ΫM΄λΎλ^έέ¶γήο®Ήο~ψλή»λ^ψλ΄οΎΌοέ΄εΎχοNΉλ~½λ®½λ}΄οΉο~ψΩώ¶λΌλ^ϊλήοn]ΫNΊλ^½ιΞχΫmΡ­΄ΫM΄ΫN·ιώοΉοΞψέέ¶Ϋm¶Ρ­΄ΫM΄ΫN:ιώιΞο½΄ο~ύο~ψλλ^ψλή·ΩήΈλ¶ο»λΎ½ιξ»ΫNχιΎ½ιΞέ­ΫM΄ΫM΄ί]ΫNvλµλ΄οΌλ΄λφοnοm΄ιήΉο~χλ^»λ΄λ~µοnΉλ®ωιΞοέΫM΄ΫM΄ίmΫNvλτοnλωλ~ΉΫNψλΞΉΫN½ο~χοΉΡ­΄ΫM΄ΫMχΩν΄ηφλ^·λ΄οΌλ΄λµοµΫNΊιΞο½΄οΫNΊλήλ΄οnιώψΫN·λ^ωο~ΉΡ­΄ΫM΄ΫMψΩν΄ηnΉοNοnψΫNΊλήλ½ιξ»ο}΄{o4χ΄λΫNαώxΫNΊλήόΫNύλψΡ­ΫM΄ΫM΄γφοnοmΪΫN[οNµο~ψλ΄λ®ωιΞΫNΉοnφιώφεέΫM΄ΫM΄γ®½ιΞΉέ­΄εΎτλ^ψλΝ΄οΫNΊλ^½ιΞ½ιξ»ΫN·ιώΈλ]Ρ­΄ΫM΄ΫNxλχο΄λ~ιήλ^λΪΫN[λόλ^·ο΄λ~ιήλ^λ]Ρ­΄ΫM΄ΫM¶Ϋm¶ΩΝΫM΄ΫM΄οιώο~Ήοχέή[ΫΎψλφιή½ιξµιΝ»ΩΝ΄ΫΎΊλήλ»εέΫέλN΄λMΡ­·Ϋ}·ΫN{λήψλΝ΄οΉο~ψΩήΈοn½ο®ΉινλΉο®ΉιΞοNλοΡ®{λΞΉιν΄λ®½οΞ½ιξ»ΫN¶ο»ο}ΪΡ­υΩν΄ηΎφλήψλ΄λ]΄οΉο~ψΫNψλΞµο΄οnΉοNφιώΈο·λχΫNψλΞΉΫN¶ο»ΫMΌηn9γ½Ρ­φΩν΄γΉλnωλ½΄ο~ύο~ψλλ^ψλή·λ^ιΞύΫNψιύ΄λ®½ιξΈΫNφιώο΄λ~µοχλί}ΫN:λήόΫNψλΞΉΫNφιώο΄λ~µοχλ΄ΫΞ;ηn9γΫέίΫNxλΞΉΫNψλχο΄οNφιώϊλχΫNψλΞΉΫNΊλήόΫNµιξΈΫNτοnΉο®Ήιξψο}΄οnΉλΎφλχο~½ιώΡ­Ϋ}·ΫNvλµιΝηΎοnλ΄γήοNµλ~ψΡ­γ®φιώΫNΈλ¶ο»λΎ½ιξ»ΫNχλχο~½ιώο}ΪΡ­ΫNwοήχοΉιήµο½λ}΄λ^τοNφιώµλ~Όέ­΄ί]ωΩέχίM΄ιή½ιξωοΉο}΄οΫNΊλήόΡ­ΫNvλ^λιέ΄λ®½οΞΉο}΄λ^τοNφιώµλ~Όέ­΄ίmί}΄λΞοφο}΄ιώΊΫNψλΞφλ^χλΞ½ιξ»Ρ­ΫN:λήφο~ψΩήψλήλ΄λ®½οΝ΄οnµοΉέ­΄ίέωΫ΄ο®χΫMψίMΉΡ­ΫNλϋΫN¶ο»ο}΄λήοφιώΈο·λΈέ­΄αξΉλ^φΫNΪλφιύ΄ο®χΫN·ιώιήινΡ­Ω®ιύ΄ο~Όιώφο·οψο}ΫNιύ΄λΎωλχο~½ιξ»Ων΄η~ύο~ψλλ^ψλή·ΫNµιΞϋλ^ύο}΄οΎ½ιξχΩνΩ­
+---
+name: systematic-debugging
+description: "4-phase root cause debugging: understand bugs before fixing."
+version: 1.1.0
+author: Community
+license: MIT
+platforms: [linux, macos, windows]
+metadata:
+  hermes:
+    tags: [debugging, troubleshooting, problem-solving, root-cause, investigation]
+    related_skills: [test-driven-development, plan, subagent-driven-development]
+---
+
+# Systematic Debugging
+
+## Overview
+
+Random fixes waste time and create new bugs. Quick patches mask underlying issues.
+
+**Core principle:** ALWAYS find root cause before attempting fixes. Symptom fixes are failure.
+
+**Violating the letter of this process is violating the spirit of debugging.**
+
+## The Iron Law
+
+```
+NO FIXES WITHOUT ROOT CAUSE INVESTIGATION FIRST
+```
+
+If you haven't completed Phase 1, you cannot propose fixes.
+
+## The Feedback Loop Rule
+
+The feedback loop is the debugging work. Before reading code to build a theory, create or identify a **tight** command that can go red on the user's exact symptom and green when the bug is fixed. A tight loop is fast, deterministic, agent-runnable, and specific enough to catch this bug β€” not merely "doesn't crash".
+
+When a clean repro is hard, spend disproportionate effort building the loop. Guessing without a red-capable loop is the failure mode this skill exists to prevent.
+
+## When to Use
+
+Use for ANY technical issue:
+- Test failures
+- Bugs in production
+- Unexpected behavior
+- Performance problems
+- Build failures
+- Integration issues
+
+**Use this ESPECIALLY when:**
+- Under time pressure (emergencies make guessing tempting)
+- "Just one quick fix" seems obvious
+- You've already tried multiple fixes
+- Previous fix didn't work
+- You don't fully understand the issue
+
+**Don't skip when:**
+- Issue seems simple (simple bugs have root causes too)
+- You're in a hurry (rushing guarantees rework)
+- Someone wants it fixed NOW (systematic is faster than thrashing)
+
+## The Four Phases
+
+You MUST complete each phase before proceeding to the next.
+
+---
+
+## Phase 1: Root Cause Investigation
+
+**BEFORE attempting ANY fix:**
+
+### 1. Read Error Messages Carefully
+
+- Don't skip past errors or warnings
+- They often contain the exact solution
+- Read stack traces completely
+- Note line numbers, file paths, error codes
+
+**Action:** Use `read_file` on the relevant source files. Use `search_files` to find the error string in the codebase.
+
+### 2. Build a Tight Feedback Loop
+
+- Can you trigger the user's exact symptom with one command?
+- Does the command fail for this bug and only pass once the bug is fixed?
+- Is it fast enough to run repeatedly?
+- Is it deterministic? For flaky bugs, can you raise the reproduction rate high enough to debug?
+- If not reproducible β†’ gather more data, don't guess.
+
+**Ways to construct a loop β€” try in roughly this order:**
+
+1. **Failing test** at the seam that reaches the bug: unit, integration, or end-to-end.
+2. **HTTP script / curl** against a running dev server.
+3. **CLI invocation** with fixture input, diffing stdout/stderr against expected output.
+4. **Headless browser script** (Playwright/Puppeteer) asserting on DOM, console, or network.
+5. **Replay a captured trace**: HAR, request payload, event log, queue message, or webhook body.
+6. **Throwaway harness** that boots the smallest useful slice of the system and calls the failing path.
+7. **Property / fuzz loop** when the bug is intermittent wrong output over a broad input space.
+8. **Bisection harness** suitable for `git bisect run` when the bug appeared between two known states.
+9. **Differential loop** comparing old vs new version, two configs, two providers, or two datasets.
+10. **Human-in-the-loop script** only as a last resort: script the human steps and capture their result so the loop stays structured.
+
+**Tighten the loop once it exists:**
+
+- Make it faster: cache setup, narrow scope, skip unrelated initialization.
+- Make the signal sharper: assert the exact symptom, not generic success.
+- Make it more deterministic: pin time, seed randomness, isolate filesystem, freeze network.
+
+For non-deterministic bugs, the immediate goal is a higher reproduction rate, not perfection. Run the trigger 100x, parallelize, add stress, narrow timing windows, or inject sleeps. A 50% flake is debuggable; a 1% flake usually is not.
+
+**Action:** Use the `terminal` tool to run the tight loop:
+
+```bash
+# Run a specific failing test
+pytest tests/test_module.py::test_name -v
+
+# Or run a scripted repro
+python scripts/repro_bug.py
+
+# Or run a high-repetition flaky repro
+for i in {1..100}; do pytest tests/test_flake.py::test_name -q || break; done
+```
+
+### 3. Check Recent Changes
+
+- What changed that could cause this?
+- Git diff, recent commits
+- New dependencies, config changes
+
+**Action:**
+
+```bash
+# Recent commits
+git log --oneline -10
+
+# Uncommitted changes
+git diff
+
+# Changes in specific file
+git log -p --follow src/problematic_file.py | head -100
+```
+
+### 4. Gather Evidence in Multi-Component Systems
+
+**WHEN system has multiple components (API β†’ service β†’ database, CI β†’ build β†’ deploy):**
+
+**BEFORE proposing fixes, add diagnostic instrumentation:**
+
+For EACH component boundary:
+- Log what data enters the component
+- Log what data exits the component
+- Verify environment/config propagation
+- Check state at each layer
+
+Run once to gather evidence showing WHERE it breaks.
+THEN analyze evidence to identify the failing component.
+THEN investigate that specific component.
+
+### 5. Trace Data Flow
+
+**WHEN error is deep in the call stack:**
+
+- Where does the bad value originate?
+- What called this function with the bad value?
+- Keep tracing upstream until you find the source
+- Fix at the source, not at the symptom
+
+**Action:** Use `search_files` to trace references:
+
+```python
+# Find where the function is called
+search_files("function_name(", path="src/", file_glob="*.py")
+
+# Find where the variable is set
+search_files("variable_name\\s*=", path="src/", file_glob="*.py")
+```
+
+### Phase 1 Completion Checklist
+
+- [ ] Error messages fully read and understood
+- [ ] A tight loop command exists and has been run at least once
+- [ ] Loop is red-capable: it asserts the user's exact symptom, not a nearby failure
+- [ ] Loop is deterministic, or a flaky bug has a high enough reproduction rate to debug
+- [ ] Recent changes identified and reviewed
+- [ ] Evidence gathered (logs, state, data flow)
+- [ ] Problem isolated to specific component/code
+- [ ] Root cause hypotheses can be stated and tested
+
+**STOP:** Do not proceed to Phase 2 until you understand WHY it's happening.
+
+---
+
+## Phase 2: Pattern Analysis
+
+**Find the pattern before fixing:**
+
+### 0. Minimize the Reproduction
+
+Once the loop is red, shrink the repro to the smallest scenario that still goes red. Cut inputs, callers, config, data, and steps **one at a time**, re-running the loop after each cut. Keep only what is load-bearing for the failure.
+
+Done when removing any remaining element makes the loop go green. A minimal repro narrows the hypothesis space and often becomes the cleanest regression test.
+
+### 1. Find Working Examples
+
+- Locate similar working code in the same codebase
+- What works that's similar to what's broken?
+
+**Action:** Use `search_files` to find comparable patterns:
+
+```python
+search_files("similar_pattern", path="src/", file_glob="*.py")
+```
+
+### 2. Compare Against References
+
+- If implementing a pattern, read the reference implementation COMPLETELY
+- Don't skim β€” read every line
+- Understand the pattern fully before applying
+
+### 3. Identify Differences
+
+- What's different between working and broken?
+- List every difference, however small
+- Don't assume "that can't matter"
+
+### 4. Understand Dependencies
+
+- What other components does this need?
+- What settings, config, environment?
+- What assumptions does it make?
+
+---
+
+## Phase 3: Hypothesis and Testing
+
+**Scientific method:**
+
+### 1. Form Ranked Falsifiable Hypotheses
+
+- Generate 3β€“5 plausible hypotheses before testing any single one.
+- Rank them by likelihood and cheapness to falsify.
+- State the prediction each hypothesis makes: "If X is the cause, then changing or observing Y should make Z happen."
+- Discard or sharpen any hypothesis that does not make a testable prediction.
+
+If the user is present, show the ranked list before testing. They may have domain knowledge that instantly re-ranks it. If the user is AFK, proceed with your ranking.
+
+### 2. Test Minimally
+
+- Test the highest-ranked hypothesis with the smallest possible probe.
+- Change one variable at a time.
+- Don't fix multiple things at once.
+- Prefer debugger/REPL inspection when available; one breakpoint beats ten logs.
+- If you add logs, tag every temporary line with a unique prefix such as `[DEBUG-a4f2]` so cleanup is a single search.
+
+### 3. Verify Before Continuing
+
+- Did it work? β†’ Phase 4
+- Didn't work? β†’ Form NEW hypothesis
+- DON'T add more fixes on top
+
+### 4. When You Don't Know
+
+- Say "I don't understand X"
+- Don't pretend to know
+- Ask the user for help
+- Research more
+
+---
+
+## Phase 4: Implementation
+
+**Fix the root cause, not the symptom:**
+
+### 1. Create Failing Test Case
+
+- Simplest possible reproduction
+- Automated test if possible
+- MUST have before fixing
+- Use the `test-driven-development` skill
+
+### 2. Implement Single Fix
+
+- Address the root cause identified
+- ONE change at a time
+- No "while I'm here" improvements
+- No bundled refactoring
+
+### 3. Verify Fix
+
+```bash
+# Run the specific regression test
+pytest tests/test_module.py::test_regression -v
+
+# Run full suite β€” no regressions
+pytest tests/ -q
+```
+
+### 4. If Fix Doesn't Work β€” The Rule of Three
+
+- **STOP.**
+- Count: How many fixes have you tried?
+- If < 3: Return to Phase 1, re-analyze with new information
+- **If β‰¥ 3: STOP and question the architecture (step 5 below)**
+- DON'T attempt Fix #4 without architectural discussion
+
+### 5. If 3+ Fixes Failed: Question Architecture
+
+**Pattern indicating an architectural problem:**
+- Each fix reveals new shared state/coupling in a different place
+- Fixes require "massive refactoring" to implement
+- Each fix creates new symptoms elsewhere
+
+**STOP and question fundamentals:**
+- Is this pattern fundamentally sound?
+- Are we "sticking with it through sheer inertia"?
+- Should we refactor the architecture vs. continue fixing symptoms?
+
+**Discuss with the user before attempting more fixes.**
+
+This is NOT a failed hypothesis β€” this is a wrong architecture.
+
+---
+
+## Red Flags β€” STOP and Follow Process
+
+If you catch yourself thinking:
+- "Quick fix for now, investigate later"
+- "Just try changing X and see if it works"
+- "Add multiple changes, run tests"
+- "Skip the test, I'll manually verify"
+- "It's probably X, let me fix that"
+- "I don't fully understand but this might work"
+- "Pattern says X but I'll adapt it differently"
+- "Here are the main problems: [lists fixes without investigation]"
+- Proposing solutions before tracing data flow
+- **"One more fix attempt" (when already tried 2+)**
+- **Each fix reveals a new problem in a different place**
+
+**ALL of these mean: STOP. Return to Phase 1.**
+
+**If 3+ fixes failed:** Question the architecture (Phase 4 step 5).
+
+## Common Rationalizations
+
+| Excuse | Reality |
+|--------|---------|
+| "Issue is simple, don't need process" | Simple issues have root causes too. Process is fast for simple bugs. |
+| "Emergency, no time for process" | Systematic debugging is FASTER than guess-and-check thrashing. |
+| "Just try this first, then investigate" | First fix sets the pattern. Do it right from the start. |
+| "I'll write test after confirming fix works" | Untested fixes don't stick. Test first proves it. |
+| "Multiple fixes at once saves time" | Can't isolate what worked. Causes new bugs. |
+| "Reference too long, I'll adapt the pattern" | Partial understanding guarantees bugs. Read it completely. |
+| "I see the problem, let me fix it" | Seeing symptoms β‰  understanding root cause. |
+| "One more fix attempt" (after 2+ failures) | 3+ failures = architectural problem. Question the pattern, don't fix again. |
+
+## Quick Reference
+
+| Phase | Key Activities | Success Criteria |
+|-------|---------------|------------------|
+| **1. Root Cause** | Read errors, reproduce, check changes, gather evidence, trace data flow | Understand WHAT and WHY |
+| **2. Pattern** | Find working examples, compare, identify differences | Know what's different |
+| **3. Hypothesis** | Form theory, test minimally, one variable at a time | Confirmed or new hypothesis |
+| **4. Implementation** | Create regression test, fix root cause, verify | Bug resolved, all tests pass |
+
+## Hermes Agent Integration
+
+### Investigation Tools
+
+Use these Hermes tools during Phase 1:
+
+- **`search_files`** β€” Find error strings, trace function calls, locate patterns
+- **`read_file`** β€” Read source code with line numbers for precise analysis
+- **`terminal`** β€” Run tests, check git history, reproduce bugs
+- **`web_search`/`web_extract`** β€” Research error messages, library docs
+
+### With delegate_task
+
+For complex multi-component debugging, dispatch investigation subagents:
+
+```python
+delegate_task(
+    goal="Investigate why [specific test/behavior] fails",
+    context="""
+    Follow systematic-debugging skill:
+    1. Read the error message carefully
+    2. Reproduce the issue
+    3. Trace the data flow to find root cause
+    4. Report findings β€” do NOT fix yet
+
+    Error: [paste full error]
+    File: [path to failing code]
+    Test command: [exact command]
+    """,
+    toolsets=['terminal', 'file']
+)
+```
+
+### With test-driven-development
+
+When fixing bugs:
+1. Write a test that reproduces the bug (RED)
+2. Debug systematically to find root cause
+3. Fix the root cause (GREEN)
+4. The test proves the fix and prevents regression
+
+## Real-World Impact
+
+From debugging sessions:
+- Systematic approach: 15-30 minutes to fix
+- Random fixes approach: 2-3 hours of thrashing
+- First-time fix rate: 95% vs 40%
+- New bugs introduced: Near zero vs common
+
+**No shortcuts. No guessing. Systematic always wins.**
